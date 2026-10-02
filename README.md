@@ -1,0 +1,1 @@
+# Paranovich-lection-minima
